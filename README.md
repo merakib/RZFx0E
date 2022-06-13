@@ -3,7 +3,7 @@
 - 🤔 I’m looking for help with everything since I'm dumb :p
 - 💬 Don't ask me anything, I'm dumb :p
 - 📫 How to reach me: 
-- 
+ 
   + Discord : _RΔKiB™#7358
   + Email : md3021822@protonmail.me
   + Facebook : https://www.facebook.com/RakibX0E/
