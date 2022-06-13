@@ -10,7 +10,7 @@
 
     Discord : _RΔKiB™#7358
 
-    Email : md3021822@protonmail.com
+    Email : md3021822@protonmail.me
 
     Facebook : https://www.facebook.com/RakibX0E/
 
