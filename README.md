@@ -8,7 +8,7 @@
 
 📫 How to reach me:
 
-    Discord : _Rakib™#7358
+    Discord : _RΔKiB™#7358
 
     Email : md3021822@protonmail.com
 
